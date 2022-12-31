@@ -2,7 +2,7 @@
 - 👀 I’m interested in Application Programation
 - 🌱 I’m currently learning Basics 
 - 💞️ I’m looking to collaborate on Anything Intersting ;)
-- 📫 How to reach me!? : Well Don’t be shy like me hehe, my insta is the same tag!
+- 📫 How to reach me!? : Well Don’t be shy like me, my insta is the same tag!
 
 
 
